@@ -1,1 +1,1 @@
-# ifavcode.github.io
+If you like it, please give me a star
